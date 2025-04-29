@@ -1,1 +1,1 @@
-si:kram vardhu
+si:kram varudhu
