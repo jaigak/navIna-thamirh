@@ -1,1 +1,1 @@
-sîkram var'd̪u
+seekram var'd̪u
